@@ -1,4 +1,4 @@
-# 免费 Claude AI Pro 会员账号批发购买
+# 免费 Claude AI Pro 共享独享会员账号批发购买
 
 平台网址: [https://anyshop.vip](https://anyshop.vip/?_referrer=adgithubbdakx)
 
